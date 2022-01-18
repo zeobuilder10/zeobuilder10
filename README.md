@@ -1,11 +1,11 @@
-
- *--------------------------------------------------------------------------------------*
- | You have come traveller, if you're here you must be seeking knowledge, mmmmmmh.....? |
- | Well my friend, I have nothing to offer! It is truly empty up there in my brain box! |
- | Well i still hope you have fun in this treasure trove of random, unusefull projects. |
- *--------------------------------------------------------------------------------------*
  
- Hello i do programming and also art and also programming but mainly a lot of art and programming, i love art.
+You have come traveller, if you're here you must be seeking knowledge, mmmmmmh.....?    
+Well my friend, I have nothing to offer! It is truly empty up there in my brain box!    
+Well i still hope you have fun in this treasure trove of random, unusefull projects.  
+ 
+ 
+ 
+Hello i do programming and also art and also programming but mainly a lot of art and programming, i love art.
  
                                          ░░      ░░░░░░░░░░░░░░░░░░░░░░░░░░░░▒▒▒▒▒▒░░░░▒▒▒▒▒▒▒▒░░▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒
                                         ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░▒▒▒▒▒▒▒▒░░▒▒▒▒▒▒▒▒░░▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒▒
